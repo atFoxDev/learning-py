@@ -15,3 +15,10 @@ cause.
 Well, i've rewatched some chapters cause i kinda forgor😭,im at 2:23:00
 I think i'm gonna take a pause till i get my mobo for pc, till then i think 
 im gonna continue to make that site. 
+
+### Day 11 **7.12.2024**
+I kinda got bored cause i can't do any good with the laptop, in some days my
+mobo will come and i think i will start to take this more serious, i have some
+test and i may procrastinate, i've changed my desk and i will change my peripherials
+for now i leave this hobby on pause, i think i wanna get into electric engineering as
+a hobby, well GoodBye!
